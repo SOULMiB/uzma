@@ -1,4 +1,4 @@
-# Bitches
-Someone in the Feather Client Discord told me to go code myself some bitches, so I did.
+# My Bitch
+I finally got bitches and my beloved uzma 
 
-I heard if you star this, it gives you more bitches.
+this script lets me get uzma and save her in my important library for ever<3
